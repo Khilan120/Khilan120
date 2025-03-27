@@ -51,6 +51,6 @@ I am a motivated **Computer Science graduate** with 2+ years of professional exp
 
 ## 📬 Let's Connect!
 - 📧 Email: [khilankr2020@gmail.com](mailto:khilankr2020@gmail.com)  
-- 💼 LinkedIn: [linkedin.com/in/khilan-khoyani-5442341b9](www.linkedin.com/in/khilan-khoyani-5442341b9)  
+- 💼 LinkedIn: [www.linkedin.com/in/khilan-khoyani-5442341b9](https://www.linkedin.com/in/khilan-khoyani-5442341b9/)
 
 Feel free to **connect, collaborate, or discuss ideas!** 🚀
